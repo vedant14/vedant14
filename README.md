@@ -7,5 +7,4 @@ Thanks for visiting my github profile.
 
 If you want to see the things I've build I recommend visiting **[my product portfolio](https://www.vedantlohbare.com/side-projects/)**
 
-✨ Give me a shoutout on twitter [@VedantLohbare](https://twitter.com/VedantLohbare)
 
